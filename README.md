@@ -1,0 +1,1 @@
+# asia-magento2-theme-theme1
